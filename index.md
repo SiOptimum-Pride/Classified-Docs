@@ -1,4 +1,4 @@
-## Welcome to GitHub Pages
+Owned by SiOptimum-Pride
 
 You can use the [editor on GitHub](https://github.com/SiOptimum-Pride/Classified-Docs/edit/gh-pages/index.md) to maintain and preview the content for your website in Markdown files.
 
