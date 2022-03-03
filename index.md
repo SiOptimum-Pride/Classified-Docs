@@ -13,7 +13,7 @@ So, the next character is a human named Charlie. He has a very low IQ and wanted
 Charlie's teacher, Miss Kinnian recommended him to be the next test subject for the experiment. But, both doctors were arguing about him being the next test subject Dr. Nemur was worried about using Charlie though, Dr. Strauss told him Miss Kinnian recommended him because he was the best from all the people she was teaching. They don't know if the result of the experiment will be permanent bus there's a chance. They also argued about his motivation which Algernon possessed too. 
 
 After Charlie underwent the surgery and became smarter and smarter in each progress report that's when I suspected something... ![I![rzr2flpmfp861](https://user-images.githubusercontent.com/99947343/156520065-4c1ee3c1-eb75-4e29-96a3-52c0bce46c36.jpg)
-mage](src) 
+mage]
 
 Before the operation, the doctors didn't feed Charlie due to unspecified reasons Dr. Strauss said he can eat after the operation.
 
