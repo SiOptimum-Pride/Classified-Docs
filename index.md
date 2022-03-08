@@ -15,9 +15,20 @@ Charlie's teacher, Miss Kinnian recommended him to be the next test subject for 
 After Charlie underwent the surgery and became smarter and smarter in each progress report that's when I suspected something... ![rzr2flpmfp861](https://user-images.githubusercontent.com/99947343/156520065-4c1ee3c1-eb75-4e29-96a3-52c0bce46c36.jpg)
 
 
-Before the operation, the doctors didn't feed Charlie due to unspecified reasons Dr. Strauss said he can eat after the operation.
+Before the operation, the doctors didn't feed Charlie due to unspecified reasons however, Dr. Strauss said that he can eat after the operation.
 
 Now that the operation is done, Charlie continued with his tests and different races with Algernon. Dr. Strauss said Charlie needs to play those games, he has redo the inkblot tests some time, and the pictures (he likes to draw a picture of a man and a woman but he won't make up lies about people.)
+
+Dr. Strauss lent Charlie a device that looks like a little telivision but it's not. Charlie was told by him to turn it on when going to sleep. Charlie doesn't want to do it but if he wants to get smart, he should follow what Dr. Strauss says.
+
+Charlie won't go back to class at Miss Kinnian's school but soon she will come to the hospital to start and teach him special things (I think).
+
+The device kept him up all night. The device keeps on yelling things in his ears with "nutty" pictures. He doesn't know what it says when he's up and how's he going to kno when sleeping. Dr Strauss says it's ok and he told him that Charlie's brain is learning when he's asleep and that will help Miss Kinnian starts teaching him in the hospital. Charlie won't notice for a while that he isn't gettign smart but soon he will.
+
+Dr. Strauss showed Charlie how to keep the TV turned low so now he can sleep. Fortunately, he doesn't hear a thing though, he still doesn't understand what it says. A few times he replays it in the morning to find out what he has learned while he's sleeping and he doesn't think so. Miss Kinnian says maybe it's another language but most times it sounds like english.
+
+Obviously people can get annoyed so Charlie asked Dr. Strauss what good is it to get smart in his sleep because he wants to get smart while awake. He says it's the same thing and he has two minds they are called the subconscious and conscious- Both of these explain how he's getting smart. The device influences influences/feeds knowledge to his subconscious and little by little, he gets smart based on the improving spelling of this part of the story.
+
 Near the end of the story, Algernon bit Charlie and started to show bizarre behavior. He was less cooperative, refuses to run the maze anymore; general motivation has decreased. And he hasn't been eating. 
 ### Markdown
 
