@@ -32,9 +32,6 @@ Miss Kinnian started to teach Charlie! He read Robinson Crusoe, learned to spell
 
 Near the end of the story, Algernon bit Charlie and started to show bizarre behavior. He was less cooperative, refuses to run the maze anymore; general motivation has decreased. And he hasn't been eating. 
 
-![![275167283_3424958171072653_131405541692838249_n](https://user-images.githubusercontent.com/99947343/157402300-4e484224-5c44-4bb0-ab8f-c88b9fbca3f5.png)
-](src)
-
 They've been feeding Algernon, who now refuses to work the shifting-lock problem. Charlie started researching this.
 
 Charlie's been given a lab of his own and permission to go ahead with the research. He works there day and night so he he had a cot moved into his lab. Most of his writing time is spent on the notes which he keeps in a separate folder.
