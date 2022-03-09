@@ -68,8 +68,9 @@ As Charlie revies the records and data on Algernon, he sees that although he is 
 The surgical stimulus to which we were both subjected has resuted in an intensification and acceleration of all mental processes. The unforseen development, which I have taken the liberty of calling the Algernon-Gordon Effect, is the logical extension of the entire intelligence speed-up. The hypothesis here proven may be described  simply in the following terms: Artificially increased intelligence deteriorates at a rate of time directly proportional to the quantity of the increase.
 
 Algernon died two days ago and his brain was dissected and the its weight decreased and there was a general smoothing of cerebral convolutions.
-[https://nba.uth.tmc.edu/neuroanatomy/NaO_Images/Images/Lab1/L01P07F1.png]
-[https://qph.fs.quoracdn.net/main-qimg-fa8fade32fd9c8845dfe5e18b5e80fd7.webp]
+[https://nba.uth.tmc.edu/neuroanatomy/NaO_Images/Images/Lab1/L01P07F1]
+
+[https://qph.fs.quoracdn.net/main-qimg-fa8fade32fd9c8845dfe5e18b5e80fd7]
 
 These are the other symptoms Charlie experiences:
 1. Absent-minded
