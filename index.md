@@ -32,7 +32,7 @@ Miss Kinnian started to teach Charlie! He read Robinson Crusoe, learned to spell
 
 Near the end of the story, Algernon bit Charlie and started to show bizarre behavior. He was less cooperative, refuses to run the maze anymore; general motivation has decreased. And he hasn't been eating. 
 
-![rzr2flpmfp861](https://user-images.githubusercontent.com/99947343/156520065-4c1ee3c1-eb75-4e29-96a3-52c0bce46c36.jpg)
+[https://i.ytimg.com/vi/wJWksPWDKOc/maxresdefault.jpg]
 
 They've been feeding Algernon, who now refuses to work the shifting-lock problem. Charlie started researching this.
 
@@ -67,8 +67,8 @@ As Charlie revies the records and data on Algernon, he sees that although he is 
 The surgical stimulus to which we were both subjected has resuted in an intensification and acceleration of all mental processes. The unforseen development, which I have taken the liberty of calling the Algernon-Gordon Effect, is the logical extension of the entire intelligence speed-up. The hypothesis here proven may be described  simply in the following terms: Artificially increased intelligence deteriorates at a rate of time directly proportional to the quantity of the increase.
 
 Algernon died two days ago and his brain was dissected and the its weight decreased and there was a general smoothing of cerebral convolutions.
-![https://nba.uth.tmc.edu/neuroanatomy/NaO_Images/Images/Lab1/L01P07F1.png](src)
-![https://qph.fs.quoracdn.net/main-qimg-fa8fade32fd9c8845dfe5e18b5e80fd7.webp](src)
+![https://nba.uth.tmc.edu/neuroanatomy/NaO_Images/Images/Lab1/L01P07F1.png]
+![https://qph.fs.quoracdn.net/main-qimg-fa8fade32fd9c8845dfe5e18b5e80fd7.webp]
 
 These are the other symptoms Charlie experiences:
 1. Absent-minded
